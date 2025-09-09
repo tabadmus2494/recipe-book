@@ -8,7 +8,7 @@
 - 1 medium onion (blended or finely chopped)
 - 2 medium tomatoes (blended; optional, depending on taste)
 - 1–2 scotch bonnet peppers (ata rodo) or any hot chilli (blended with tomato and onion)
-- 1 tbsp ground crayfish (optional but adds authentic flavour)
+- 0.5 tbsp ground crayfish (optional but adds authentic flavour)
 - 1–2 seasoning cubes (e.g. Maggi or Knorr)
 - Salt to taste
 - A pinch of ground locust beans (iru/ogiri) – optional but very traditional
