@@ -4,7 +4,7 @@
 
 - 1 cup ground beans flour (brown beans or black-eyed beans variety)
 - 3–4 cups water (adjust to your preferred thickness)
-- 3 tbsps palm oil
+- 3 tablespoons (tbsp) palm oil
 - 1 medium onion (blended or finely chopped)
 - 2 medium tomatoes (blended; optional, depending on taste)
 - 1–2 scotch bonnet peppers (ata rodo) or any hot chilli (blended with tomato and onion)
